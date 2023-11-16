@@ -69,6 +69,3 @@ Muy buena gestión del flujo genereal, y el concepto bien cogido 100/100.
 <img width="425" alt="image" src="https://github.com/carmenschez5/Apuntes/assets/54994511/b3caf6b8-0d41-443a-9ddc-e7e82cf9f6f2">
 
 
-
-honi  jnfiwai  
-#hok 
